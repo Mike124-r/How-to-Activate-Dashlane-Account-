@@ -1,1 +1,1 @@
-# How-to-Activate-BitLocker-Account-
+# How-to-Activate-Dashlane-Account
